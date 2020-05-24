@@ -1,1 +1,1 @@
-这是huajitom.cn的第一版
+This is the first addtion of huajitom
